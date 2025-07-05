@@ -36,3 +36,10 @@ If you're into code that speaks, slides that wow, or just want to talk about coo
 ---
 
 👩‍💻 #CodingOverCooking 🧑‍🍳
+
+
+
+LinkedIn:https://www.linkedin.com/public-profile/settings
+
+marxiakashika@gmail.com
+
